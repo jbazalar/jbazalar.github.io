@@ -1,1 +1,0 @@
-# jbazalar.github.io
